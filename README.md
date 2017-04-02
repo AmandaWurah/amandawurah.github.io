@@ -1,1 +1,1 @@
-# amandawurah.github.io
+# http://amandawurah.github.io
